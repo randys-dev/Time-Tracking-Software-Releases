@@ -1,4 +1,4 @@
-# TimeTracker Privacy Policy
+# AFM Time Tracker Privacy Policy
 
 **Effective Date:** October 14, 2026
 
