@@ -59,7 +59,6 @@ We may update this Privacy Policy as the application or its data practices chang
 
 For questions about this Privacy Policy or requests concerning personal information, contact:
 
-**Advance Framing Materials**  
-Email: [Insert a monitored company contact email]
+**Randall Smith**  
+Email: randalltsmith1996@icloud.com
 
-Website: https://api.advanceframingmaterial.com
